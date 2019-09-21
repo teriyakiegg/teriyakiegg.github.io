@@ -1,2 +1,0 @@
-# teriyakiegg.github.io
-プロフィール
